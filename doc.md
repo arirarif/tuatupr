@@ -52,3 +52,12 @@ What we expect on delivery
 •	30-day bug fix support after launch
 Contact
 info@tuatupr.com  ·  tuatupr.com  ·  +34 692 037 728
+
+
+
+
+
+Ok, but before we finally proceed could you update the mockup with the total number of products/countries, erase my address Calle Canteras de Tilly, 3, 1ºC
+Madrid, España and include wh ats ap p instead of the ph o ne, and instead of International PR agency indicate Global. And the girl in the background reading a newspaper is not correct, as we only provide digital publications.
+
+For contents, I would like a combination between https://www.brandpush.co/ and https://b2press.com/ - use our colour #a0558d
